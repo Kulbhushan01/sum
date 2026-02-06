@@ -271,4 +271,3 @@ This website template is provided for Kulkarni Creation.
 
 **Made with ❤️ for Kulkarni Creation**
 
-For support or customization requests, contact through WhatsApp: +91 9423743002
